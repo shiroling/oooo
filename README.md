@@ -4,3 +4,8 @@
 
 
 allez solong
+
+is readme
+est lismoi
+es leesme
+ok.
